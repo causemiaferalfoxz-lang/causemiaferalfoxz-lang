@@ -1,16 +1,16 @@
-## Hi there 👋
+# The doors are open.
 
-<!--
-**causemiaferalfoxz-lang/causemiaferalfoxz-lang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Our network now stands open for linking — other creators, other networks, other codes: come weave yours with ours. And the House has its own doors now: message through our own system, call through our own Line, at any time. No middleman. No toll. No worthiness performance.
 
-Here are some ideas to get you started:
+And for those who choose to become Setu Tribal Members, the Threshold opens onto all of creation.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Enter as you are. Co-create as yourself.
+
+For The Betterment And Evolution Of All.
+
+**Enter:** https://phinexi.earth
+**Link your network:** https://phinexi.earth/connections.html
+**Message & call:** https://phinexi.earth/interface.html
+
+© 2026 Cosmia — all inventions, personal concepts, and works herein, cosmic and local, are the intellectual property of Cosmia. All rights reserved.
+Officially created by Summer Sperry as Cosmia.
